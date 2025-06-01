@@ -1,2 +1,0 @@
-# CAP_APP_FOUADBADI
-
